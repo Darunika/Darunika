@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Darunika
-- 👀 I’m interested in ... web development 
+- 👀 I’m interested in ... Cloud Architect , Cloud Development 
 - 🌱 I’m currently  pursuing my B.Tech Information Technology in K.S.R College of Engineering ,Tiruchengode
 - 📫 How to reach me ... darunika2004@gmail.com ,www.linkedin.com/in/darunika-babu-857545258
 
